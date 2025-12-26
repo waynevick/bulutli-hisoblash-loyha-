@@ -1,0 +1,1 @@
+# bulutli-hisoblash-loyha-
